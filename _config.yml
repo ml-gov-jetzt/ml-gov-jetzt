@@ -7,3 +7,6 @@ titles_from_headings:
 remote_theme: jekyll/minima
 minima:
   skin: solarized
+
+author:
+  name: Saqib Ali
