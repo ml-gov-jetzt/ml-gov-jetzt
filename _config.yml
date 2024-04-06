@@ -1,0 +1,9 @@
+title: Machine Learning at Gov Jetzt
+
+titles_from_headings:
+  enabled: true
+  strip_title: true
+  
+remote_theme: jekyll/minima
+minima:
+  skin: solarized
