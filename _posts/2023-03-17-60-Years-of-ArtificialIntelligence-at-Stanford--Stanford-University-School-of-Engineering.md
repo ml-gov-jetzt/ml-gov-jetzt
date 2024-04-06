@@ -1,0 +1,1 @@
+[60 Years of #ArtificialIntelligence at Stanford   Stanford University School of Engineering](https://qi.tc/qi/112140)
