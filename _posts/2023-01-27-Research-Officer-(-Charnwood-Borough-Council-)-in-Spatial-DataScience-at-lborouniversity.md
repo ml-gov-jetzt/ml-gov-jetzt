@@ -1,0 +1,1 @@
+[#Research Officer ( Charnwood Borough Council ) in Spatial #DataScience at @lborouniversity](https://qi.tc/qi/111001)
