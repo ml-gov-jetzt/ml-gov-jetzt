@@ -1,0 +1,1 @@
+[Cambridge academics join £31 million consortium to develop trustworthy and secure AI   @cambridge_uni](https://qi.tc/qi/114318)
