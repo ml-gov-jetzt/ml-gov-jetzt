@@ -1,0 +1,1 @@
+[#ResponsibleA I for #SoftwareEngineering (RAISE ) - Next Generation Graduates Programs](https://qi.tc/qi/111208)
