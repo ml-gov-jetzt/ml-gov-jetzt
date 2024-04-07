@@ -1,0 +1,1 @@
+[Colorado State University Employment Opportunities   #Geospatial Data and Analysis Program Manager](https://qi.tc/qi/110940)
