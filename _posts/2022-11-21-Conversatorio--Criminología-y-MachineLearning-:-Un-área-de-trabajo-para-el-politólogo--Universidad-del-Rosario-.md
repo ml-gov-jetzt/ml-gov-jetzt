@@ -1,0 +1,1 @@
+[Conversatorio   Criminología y #MachineLearning : Un área de trabajo para el politólogo   Universidad del Rosario ](https://qi.tc/qi/10289)
