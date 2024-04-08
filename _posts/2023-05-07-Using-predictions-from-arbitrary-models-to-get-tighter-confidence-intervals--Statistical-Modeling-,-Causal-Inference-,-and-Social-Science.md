@@ -1,0 +1,1 @@
+[Using predictions from arbitrary models to get tighter confidence intervals   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/113173)
