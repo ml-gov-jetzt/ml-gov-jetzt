@@ -1,0 +1,1 @@
+[Universities UK statement on the latest quarterly monitoring statistics for the end of December 2022](https://qi.tc/qi/111467)
