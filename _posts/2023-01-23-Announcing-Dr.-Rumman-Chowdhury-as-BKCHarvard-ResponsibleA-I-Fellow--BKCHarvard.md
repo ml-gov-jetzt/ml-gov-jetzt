@@ -1,0 +1,1 @@
+[Announcing Dr. Rumman Chowdhury as @BKCHarvard #ResponsibleA I Fellow   @BKCHarvard](https://qi.tc/qi/110896)
