@@ -1,0 +1,1 @@
+[How AI-powered Collusion in Stock Trading Could Hurt Price Formation - Knowledge at Wharton](https://qi.tc/qi/119168)
