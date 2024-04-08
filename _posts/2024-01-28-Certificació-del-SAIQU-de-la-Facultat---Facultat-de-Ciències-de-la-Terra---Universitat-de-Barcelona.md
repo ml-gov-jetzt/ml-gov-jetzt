@@ -1,0 +1,1 @@
+[Certificació del SAIQU de la Facultat - Facultat de Ciències de la Terra - Universitat de Barcelona](https://qi.tc/qi/119071)
