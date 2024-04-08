@@ -1,0 +1,1 @@
+[Revisiting the Economics of Large Language Models with Neural Scaling Laws and Dynamic Sparsity   @MIT CSAIL](https://qi.tc/qi/113201)
