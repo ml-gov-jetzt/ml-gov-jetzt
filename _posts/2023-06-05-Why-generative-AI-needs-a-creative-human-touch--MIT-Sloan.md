@@ -1,0 +1,1 @@
+[Why generative AI needs a creative human touch   @MIT Sloan](https://qi.tc/qi/113822)
