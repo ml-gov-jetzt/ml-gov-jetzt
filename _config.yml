@@ -10,3 +10,4 @@ minima:
 
 author:
   name: Saqib Ali
+  date_format: "On day %-j of the year %Y which fell in the week %-W of in the month of %B. Or simply %A, %B %-d, %Y"
