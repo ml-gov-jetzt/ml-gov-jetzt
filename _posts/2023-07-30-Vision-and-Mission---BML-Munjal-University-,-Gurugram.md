@@ -1,0 +1,1 @@
+[Vision and Mission - BML Munjal University , Gurugram](https://qi.tc/qi/116164)
