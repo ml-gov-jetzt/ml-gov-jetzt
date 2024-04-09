@@ -1,0 +1,1 @@
+[London named best city in the world to study #ArtificialIntelligence   @UCL #ComputerScience - @UCL – @ucl](https://qi.tc/qi/112321)
