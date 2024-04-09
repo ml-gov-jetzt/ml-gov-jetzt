@@ -1,0 +1,1 @@
+[The potential of #ArtificialIntelligence to bring equity in health care   @MIT News   @MIT](https://qi.tc/qi/118496)
