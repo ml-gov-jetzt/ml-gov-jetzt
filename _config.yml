@@ -7,7 +7,7 @@ titles_from_headings:
 remote_theme: jekyll/minima
 minima:
   skin: solarized
-  date_format: "On day %-j of the year %Y which fell in the week %-W of in the month of %B. Or simply %A, %B %-d, %Y"
+  date_format: "On day %-j of the year %Y which fell in the week %-W during the month of %B. Or simply %A, %B %-d, %Y"
 
 author:
   name: Saqib Ali
