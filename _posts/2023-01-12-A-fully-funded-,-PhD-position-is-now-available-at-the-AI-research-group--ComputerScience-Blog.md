@@ -1,0 +1,1 @@
+[A fully-funded , PhD position is now available at the AI research group   #ComputerScience Blog](https://qi.tc/qi/110676)
