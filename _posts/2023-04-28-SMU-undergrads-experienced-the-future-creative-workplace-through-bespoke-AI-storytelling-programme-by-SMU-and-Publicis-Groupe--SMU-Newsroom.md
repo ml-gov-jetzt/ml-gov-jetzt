@@ -1,0 +1,1 @@
+[SMU undergrads experienced the future creative workplace through bespoke AI storytelling programme by SMU and Publicis Groupe   SMU Newsroom](https://qi.tc/qi/112996)
