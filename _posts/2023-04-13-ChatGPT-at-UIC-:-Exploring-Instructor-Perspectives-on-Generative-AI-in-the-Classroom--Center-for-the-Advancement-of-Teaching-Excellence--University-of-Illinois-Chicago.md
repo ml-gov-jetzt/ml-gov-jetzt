@@ -1,0 +1,1 @@
+[ChatGPT at UIC : Exploring Instructor Perspectives on Generative AI in the Classroom   Center for the Advancement of Teaching Excellence   University of Illinois Chicago](https://qi.tc/qi/112675)
