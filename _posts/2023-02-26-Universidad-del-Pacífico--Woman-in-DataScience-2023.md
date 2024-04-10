@@ -1,0 +1,1 @@
+[Universidad del Pacífico   Woman in #DataScience 2023](https://qi.tc/qi/111676)
