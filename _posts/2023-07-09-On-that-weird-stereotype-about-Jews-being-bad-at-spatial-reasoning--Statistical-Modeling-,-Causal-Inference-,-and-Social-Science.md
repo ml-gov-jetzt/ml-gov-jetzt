@@ -1,0 +1,1 @@
+[On that weird stereotype about Jews being bad at spatial reasoning   #Statistical Modeling , Causal Inference , and Social Science](https://qi.tc/qi/114057)
