@@ -1,0 +1,1 @@
+[Outstanding computer science student , Ariana Mims , works on inclusivity within the department - College of Natural Sciences](https://qi.tc/qi/115869)
