@@ -1,0 +1,1 @@
+[Spatiotemporal forecasting for dengue , chikungunya fever and Zika using #MachineLearning and artificial expert committees based on meta-heuristics - @UCL Discovery](https://qi.tc/qi/111685)
