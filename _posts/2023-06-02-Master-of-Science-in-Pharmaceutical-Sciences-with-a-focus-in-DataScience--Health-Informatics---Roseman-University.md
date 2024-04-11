@@ -1,0 +1,1 @@
+[Master of Science in Pharmaceutical Sciences with a focus in #DataScience & Health Informatics - Roseman University](https://qi.tc/qi/113775)
