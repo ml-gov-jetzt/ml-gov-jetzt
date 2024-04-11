@@ -1,0 +1,1 @@
+[The #ArtificialIntelligence Revolution in an Unprepared World : China , the International Stage , and the Future of AI](https://qi.tc/qi/112563)
