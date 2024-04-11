@@ -1,0 +1,1 @@
+[CSUSB to offer 8-week summer fellowship workshop on #DataScience as part of NSF grant   CSUSB News   CSUSB](https://qi.tc/qi/112208)
