@@ -1,0 +1,1 @@
+[( PDF) #ReinforcementLearning with Case-Based Heuristics for RoboCup Soccer Keepaway   Luiz Antonio Celiberto Junior and Ramon Lopez De Mantaras - Academia .edu](https://qi.tc/qi/118594)
