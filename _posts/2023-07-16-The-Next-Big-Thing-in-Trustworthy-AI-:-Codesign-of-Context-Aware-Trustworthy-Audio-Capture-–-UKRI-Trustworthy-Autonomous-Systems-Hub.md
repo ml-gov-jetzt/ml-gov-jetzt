@@ -1,0 +1,1 @@
+[The Next Big Thing in Trustworthy AI : Codesign of Context Aware Trustworthy Audio Capture – UKRI Trustworthy Autonomous Systems Hub](https://qi.tc/qi/114701)
