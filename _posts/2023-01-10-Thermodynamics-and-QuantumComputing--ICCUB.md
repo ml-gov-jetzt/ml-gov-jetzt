@@ -1,0 +1,1 @@
+[Thermodynamics and #QuantumComputing   ICCUB](https://qi.tc/qi/110610)
