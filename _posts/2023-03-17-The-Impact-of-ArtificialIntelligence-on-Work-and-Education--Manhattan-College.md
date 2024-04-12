@@ -1,0 +1,1 @@
+[The Impact of #ArtificialIntelligence on Work and Education   Manhattan College](https://qi.tc/qi/112130)
