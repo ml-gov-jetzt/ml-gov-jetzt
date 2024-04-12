@@ -1,0 +1,1 @@
+[#ArtificialIntelligence applied to thermal management of buildings   Instituto de Investigación Tecnológica ( IIT )](https://qi.tc/qi/112640)
