@@ -1,0 +1,1 @@
+[How should we talk to students about AI? - Learning and Teaching : Teach HQ](https://qi.tc/qi/113363)
