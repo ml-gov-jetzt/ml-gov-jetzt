@@ -1,0 +1,1 @@
+[#ArtificialIntelligence Summit at NPS Accelerates Critical Capabilities - Naval #Postgraduate School](https://qi.tc/qi/110839)
