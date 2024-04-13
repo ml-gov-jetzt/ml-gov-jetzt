@@ -1,0 +1,1 @@
+[Convergence : The Promise and Reality of AI & Quantum   Session Videos and Slides   CSAIL Alliances ](https://qi.tc/qi/110015)
