@@ -1,0 +1,1 @@
+[Test-time Adaptation with Slot-Centric Models – #MachineLearning Blog   ML@CMU   @CarnegieMellon](https://qi.tc/qi/118099)
