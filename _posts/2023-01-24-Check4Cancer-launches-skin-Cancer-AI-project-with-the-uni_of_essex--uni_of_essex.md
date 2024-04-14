@@ -1,0 +1,1 @@
+[Check4Cancer launches skin #Cancer AI project with the @uni_of_essex   @uni_of_essex](https://qi.tc/qi/110919)
