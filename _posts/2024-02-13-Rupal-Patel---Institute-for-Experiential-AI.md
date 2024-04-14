@@ -1,0 +1,1 @@
+[Rupal Patel - Institute for Experiential AI](https://qi.tc/qi/119160)
