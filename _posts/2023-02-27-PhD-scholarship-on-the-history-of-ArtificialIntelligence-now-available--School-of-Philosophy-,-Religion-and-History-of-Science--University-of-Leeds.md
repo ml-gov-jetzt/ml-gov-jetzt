@@ -1,0 +1,1 @@
+[PhD scholarship on the history of #ArtificialIntelligence now available   School of Philosophy , Religion and History of Science   University of Leeds](https://qi.tc/qi/111683)
