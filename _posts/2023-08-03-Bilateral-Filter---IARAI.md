@@ -1,0 +1,1 @@
+[Bilateral Filter - IARAI](https://qi.tc/qi/116030)
