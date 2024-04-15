@@ -1,0 +1,1 @@
+[Kingston University launching new postgraduate scholarships after securing #ArtificialIntelligence and #DataScience funding award from Office for Students - News - Kingston University London](https://qi.tc/qi/112374)
