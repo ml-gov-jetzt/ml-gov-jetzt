@@ -1,0 +1,1 @@
+[What Went Wrong at @openai ?   Yale Insights](https://qi.tc/qi/119111)
