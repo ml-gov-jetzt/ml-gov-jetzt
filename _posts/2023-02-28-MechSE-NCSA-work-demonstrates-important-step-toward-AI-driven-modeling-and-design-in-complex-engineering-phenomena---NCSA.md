@@ -1,0 +1,1 @@
+[MechSE-NCSA work demonstrates important step toward AI-driven modeling and design in complex engineering phenomena - NCSA](https://qi.tc/qi/111727)
