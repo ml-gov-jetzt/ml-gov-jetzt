@@ -1,0 +1,1 @@
+[2024 EDUCAUSE AI Landscape Study   EDUCAUSE Library](https://qi.tc/qi/119382)
