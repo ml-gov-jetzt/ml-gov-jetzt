@@ -1,0 +1,1 @@
+[Bachelor of Design - BTech #ComputerScience Colleges in Ahmedabad](https://qi.tc/qi/117489)
