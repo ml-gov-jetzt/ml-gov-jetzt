@@ -1,0 +1,1 @@
+[Assistant Professor in Political Science and #DataScience at Trinity College Dublin , The University of Dublin](https://qi.tc/qi/112552)
