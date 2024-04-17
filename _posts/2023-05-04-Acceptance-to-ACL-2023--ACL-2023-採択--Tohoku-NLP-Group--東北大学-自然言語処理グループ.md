@@ -1,0 +1,1 @@
+[Acceptance to ACL 2023 / ACL 2023 採択   Tohoku #NLP Group / 東北大学 自然言語処理グループ](https://qi.tc/qi/113115)
