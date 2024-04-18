@@ -1,0 +1,1 @@
+[AIMS Ghana – We believe the next Einstein will be African](https://qi.tc/qi/115713)
