@@ -1,0 +1,1 @@
+[Ani Eloyan has been promoted to Associate Professor   Department of #Biostatistics   @Brown University](https://qi.tc/qi/112233)
