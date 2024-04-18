@@ -1,0 +1,1 @@
+[People - Software and Societal Systems - School of #ComputerScience - @CarnegieMellon](https://qi.tc/qi/116734)
