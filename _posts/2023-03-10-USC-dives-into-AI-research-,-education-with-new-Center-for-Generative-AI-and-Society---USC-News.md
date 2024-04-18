@@ -1,0 +1,1 @@
+[@USC dives into AI research , education with new Center for Generative AI and Society - @USC News](https://qi.tc/qi/111994)
