@@ -1,0 +1,1 @@
+[Stanford HAI Faculty Urge President Biden to Approach AI with a Moonshot Mentality](https://qi.tc/qi/114185)
