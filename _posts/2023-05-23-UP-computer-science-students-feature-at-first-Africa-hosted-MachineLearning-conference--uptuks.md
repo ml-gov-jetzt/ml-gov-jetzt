@@ -1,0 +1,1 @@
+[UP computer science students feature at first Africa-hosted #MachineLearning conference   @uptuks](https://qi.tc/qi/113557)
