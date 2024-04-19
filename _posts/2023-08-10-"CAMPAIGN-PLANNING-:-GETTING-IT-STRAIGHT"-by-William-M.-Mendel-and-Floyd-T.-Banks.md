@@ -1,0 +1,1 @@
+["CAMPAIGN PLANNING : GETTING IT STRAIGHT" by William M. Mendel and Floyd T. Banks](https://qi.tc/qi/116392)
