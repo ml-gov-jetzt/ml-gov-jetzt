@@ -1,0 +1,1 @@
+[AI – szansa czy zagrożenie dla uniwersytetu ? Pierwsza debata z cyklu AIDE ( Artificial Intelligence-Driven Education ) - DELab Uniwersytet Warszawski](https://qi.tc/qi/111944)
