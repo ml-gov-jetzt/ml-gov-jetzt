@@ -1,0 +1,1 @@
+[Professor receives NSF CAREER grant for efficient spatial data analytics and mining   Marquette Today](https://qi.tc/qi/119302)
