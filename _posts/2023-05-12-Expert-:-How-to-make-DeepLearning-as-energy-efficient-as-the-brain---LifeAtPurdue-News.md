@@ -1,0 +1,1 @@
+[Expert : How to make #DeepLearning as energy efficient as the brain - @LifeAtPurdue News](https://qi.tc/qi/113334)
