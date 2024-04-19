@@ -1,0 +1,1 @@
+[App recognizes suspected mpox rashes using #ArtificialIntelligence   News Center   @StanfordMed](https://qi.tc/qi/112082)
