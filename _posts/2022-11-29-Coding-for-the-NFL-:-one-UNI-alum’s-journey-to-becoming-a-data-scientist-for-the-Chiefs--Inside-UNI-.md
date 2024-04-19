@@ -1,0 +1,1 @@
+[Coding for the NFL : one UNI alum’s journey to becoming a data scientist for the Chiefs   Inside UNI ](https://qi.tc/qi/96437)
