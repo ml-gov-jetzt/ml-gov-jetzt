@@ -1,0 +1,1 @@
+[Diving into data : BW 's new #DataScience and data analytics majors](https://qi.tc/qi/110801)
