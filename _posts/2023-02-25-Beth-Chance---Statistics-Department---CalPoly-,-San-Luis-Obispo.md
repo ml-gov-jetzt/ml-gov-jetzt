@@ -1,0 +1,1 @@
+[Beth Chance - #Statistics Department - @CalPoly , San Luis Obispo](https://qi.tc/qi/111666)
