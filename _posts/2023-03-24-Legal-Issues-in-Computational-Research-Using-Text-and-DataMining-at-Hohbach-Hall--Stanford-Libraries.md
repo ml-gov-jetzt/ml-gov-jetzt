@@ -1,0 +1,1 @@
+[Legal Issues in Computational #Research Using Text and #DataMining at Hohbach Hall   Stanford Libraries](https://qi.tc/qi/112266)
