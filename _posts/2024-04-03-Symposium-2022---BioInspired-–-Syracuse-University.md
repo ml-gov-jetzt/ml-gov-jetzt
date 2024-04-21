@@ -1,0 +1,1 @@
+[Symposium 2022 - BioInspired – Syracuse University](https://qi.tc/qi/119703)
