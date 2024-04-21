@@ -1,0 +1,1 @@
+[Center for Evolvable Computing among seven new centers awarded by Semiconductor #Research Corporation ( SRC ) – @hdsiucsd](https://qi.tc/qi/110552)
