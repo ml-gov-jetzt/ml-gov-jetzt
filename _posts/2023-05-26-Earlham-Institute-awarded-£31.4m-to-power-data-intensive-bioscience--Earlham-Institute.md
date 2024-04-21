@@ -1,0 +1,1 @@
+[Earlham Institute awarded £31.4m to power data-intensive bioscience   Earlham Institute](https://qi.tc/qi/113632)
