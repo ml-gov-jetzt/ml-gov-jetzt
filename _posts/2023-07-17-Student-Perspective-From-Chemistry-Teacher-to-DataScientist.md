@@ -1,0 +1,1 @@
+[Student Perspective-From Chemistry Teacher to #DataScientist](https://qi.tc/qi/114845)
