@@ -1,0 +1,1 @@
+[Impact of Google Bard AI , ChatGPT on Management student 's](https://qi.tc/qi/111241)
