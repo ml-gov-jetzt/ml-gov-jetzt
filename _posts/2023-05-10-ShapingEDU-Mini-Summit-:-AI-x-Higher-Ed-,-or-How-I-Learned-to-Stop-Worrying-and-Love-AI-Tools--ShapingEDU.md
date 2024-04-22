@@ -1,0 +1,1 @@
+[ShapingEDU Mini Summit : AI x Higher Ed , or How I Learned to Stop Worrying and Love AI Tools   ShapingEDU](https://qi.tc/qi/113279)
