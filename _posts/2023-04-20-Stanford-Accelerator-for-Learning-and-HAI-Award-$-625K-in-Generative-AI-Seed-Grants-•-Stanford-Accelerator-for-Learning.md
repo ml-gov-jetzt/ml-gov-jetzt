@@ -1,0 +1,1 @@
+[Stanford Accelerator for Learning and HAI Award $ 625K in Generative AI Seed Grants • Stanford Accelerator for Learning](https://qi.tc/qi/112846)
