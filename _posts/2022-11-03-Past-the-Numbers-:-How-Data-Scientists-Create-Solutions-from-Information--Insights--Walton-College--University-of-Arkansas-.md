@@ -1,0 +1,1 @@
+[Past the Numbers : How Data Scientists Create Solutions from Information   Insights   Walton College   University of Arkansas ](https://qi.tc/qi/6309)
