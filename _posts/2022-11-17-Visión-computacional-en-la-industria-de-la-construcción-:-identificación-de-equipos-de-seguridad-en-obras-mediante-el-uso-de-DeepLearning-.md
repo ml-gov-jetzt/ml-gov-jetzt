@@ -1,0 +1,1 @@
+[Visión computacional en la industria de la construcción : identificación de equipos de seguridad en obras mediante el uso de #DeepLearning ](https://qi.tc/qi/9393)
