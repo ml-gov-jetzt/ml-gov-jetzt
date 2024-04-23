@@ -1,0 +1,1 @@
+[NJIT to Offer New Graduate Programs in #ArtificialIntelligence](https://qi.tc/qi/111422)
