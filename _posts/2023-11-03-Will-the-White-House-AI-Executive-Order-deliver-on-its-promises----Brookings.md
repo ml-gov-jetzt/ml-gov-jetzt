@@ -1,0 +1,1 @@
+[Will the White House AI Executive Order deliver on its promises ?   Brookings](https://qi.tc/qi/118324)
