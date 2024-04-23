@@ -1,0 +1,1 @@
+[EU #ArtificialIntelligence Act : The European Approach to AI - Journal Article - @StanfordLaw](https://qi.tc/qi/111547)
