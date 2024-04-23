@@ -1,0 +1,1 @@
+[Health gateway opens at the AITC to support integral industry - Australian Industry Trade College](https://qi.tc/qi/112215)
