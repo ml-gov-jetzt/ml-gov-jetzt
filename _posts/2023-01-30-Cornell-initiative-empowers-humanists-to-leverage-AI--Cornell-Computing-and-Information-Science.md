@@ -1,0 +1,1 @@
+[Cornell initiative empowers humanists to leverage AI   Cornell Computing and Information Science](https://qi.tc/qi/111034)
