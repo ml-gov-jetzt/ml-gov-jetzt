@@ -1,0 +1,1 @@
+[Xuechunzi Bai uses #MachineLearning to study the origins of stereotypes   Center for #Statistics and #MachineLearning](https://qi.tc/qi/112470)
